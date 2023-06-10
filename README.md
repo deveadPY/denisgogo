@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @denisgogo
+- 👋 Hi, I’m @Devead
 - 👀 I’m interested in learn a lot with you
 - 🌱 I’m currently learning java
 - 📫 How to reach me +595992909816 denisbritezsilvero@gmail.com
